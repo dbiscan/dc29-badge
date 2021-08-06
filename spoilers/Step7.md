@@ -8,3 +8,8 @@ Frame 1
 Frame 2
 
 Title of page "1 2 4" and the gif seems to have 2 frames to it.
+
+
+it was the song 8675309 "Jenny I got your number" Each badge has a roman numeral on the back of the front of the badge. Those numerals correspond to the digits in the phone number
+
+ https://defcon.org/signal/YourJourneyBegins/AlphabetShift/SandsSaharaAladdin/MC56F8006VLC/VendorSpeakerArtistCreatorHumanPressGoon/WatchYourHead  found after the jenny solve
